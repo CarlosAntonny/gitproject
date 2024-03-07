@@ -1,0 +1,1 @@
+nao gosto de indio 
